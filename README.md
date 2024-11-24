@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **samantasumit441@gmail.com**
 
-- ⚡ Fun fact **In the digital world, the sharpest minds make the strongest firewalls, Break it to make it better.**
+- ⚡ Fun fact **" In the digital world, the sharpest minds make the strongest firewalls, Break it to make it better."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
